@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Idklol5 (SarXX) 
+- 👀 I’m interested in anything I like
+- 🌱 I’m currently learning English
+- 💞️ I’m looking to collaborate on art
+- 📫 How to reach me check my email: itzmesarxx@gmail.com
+- ⚧  My pronounce is she/they
+- 📄 This is my introduction
+- 🤖 You can check my c.ai acc: SarXX
